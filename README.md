@@ -21,4 +21,4 @@
     
 #### 3. 프로젝트 결과물
 영상 준비 중
-    
+https://youtu.be/Lcezx7SMUgg
